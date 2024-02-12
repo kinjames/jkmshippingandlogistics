@@ -41,4 +41,3 @@ Have questions or need assistance? Our dedicated customer support team is ready 
 
 Thank you for choosing JKM Shipping and Logistics. We look forward to serving you and ensuring a seamless shipping experience.
 
-*Note: This is a generic template, and you may need to customize the content based on the specific details and features of your shipping and logistics company.*
